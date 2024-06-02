@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning AI & ML
 - 💞️ I’m looking to collaborate on Gen AI
-- 📫 How to reach me on Linkedin: www.linkedin.com/in/rahul-r-shekar-86b403184
+- 📫 Reach me on Linkedin: www.linkedin.com/in/rahul-r-shekar-86b403184
 - 😄 Pronouns: He/him
 - 
 
